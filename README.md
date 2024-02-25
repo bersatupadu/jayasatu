@@ -1,2 +1,2 @@
 # jayasatu
-i cant your project coin and mascot
+  DESIGN YOUR OWN PROJECT MASCOT AND LOGO
